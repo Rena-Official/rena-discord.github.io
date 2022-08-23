@@ -1,4 +1,4 @@
-# 参考資料
+# 2022/08 - 参考資料一覧
 
 ### [トーマス・エジソン - Wikipedia](https://ja.wikipedia.org/wiki/%E3%83%88%E3%83%BC%E3%83%9E%E3%82%B9%E3%83%BB%E3%82%A8%E3%82%B8%E3%82%BD%E3%83%B3)
 
