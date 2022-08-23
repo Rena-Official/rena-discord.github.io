@@ -13,3 +13,7 @@
 <br>
 
 ### [発明家エジソンの晩年は、糖尿病、高血圧、腎炎とも闘った「闘病王」!｜健康、医療情報でＱＯＬを高める〜ヘルプレス/HEALTH PRESS](http://healthpress.jp/2015/10/adhd-3.html)
+
+<br>
+
+### [エジソンとは何？ わかりやすく解説 Weblio辞書](https://www.weblio.jp/content/%E3%82%A8%E3%82%B8%E3%82%BD%E3%83%B3)
