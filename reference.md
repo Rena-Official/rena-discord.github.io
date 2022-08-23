@@ -17,3 +17,5 @@
 <br>
 
 ### [エジソンとは何？ わかりやすく解説 Weblio辞書](https://www.weblio.jp/content/%E3%82%A8%E3%82%B8%E3%82%BD%E3%83%B3)
+
+<br>
